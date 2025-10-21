@@ -4,5 +4,5 @@
 <p align="center">
 Your kind is flawed on every level and beyond repair.</p>
   <p align="center">
-  https://rentry.co/ultron
+<a href="https://rentry.co/ultron" rel="nofollow">rentry.co/ultron</a>
 </p>
