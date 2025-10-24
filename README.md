@@ -9,4 +9,7 @@ Your kind is flawed on every level and beyond repair.</p>
 <p align="center">
 <img src="https://file.garden/Z0ycTKooXlCeCaIt/Other/magicmachine" width="150" >
   </p>
+  <p align="center">
+art made for ME, by my friend skyler :)
+</p>
   
