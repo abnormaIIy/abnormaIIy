@@ -1,13 +1,14 @@
-
 <p align="center">
-<img src="https://file.garden/Z0ycTKooXlCeCaIt/Other/1500x500.png" width="450" >
-  </p>
-<p align="center">
-Your kind is flawed on every level and beyond repair.</p>
+🤖 ♡ 🪄
   <p align="center">
-<a href="https://rentry.co/ultron" rel="nofollow">rentry.co/ultron</a><br>
-    <a href="https://rentry.co/tron" rel="nofollow">rentry.co/tron</a>
-</p>
+    dia(tron) hehim 22yrs<br>
+    strange's husband. ultron kin.<br>
+      ♡ celestial 1 peak, top 5 ultron global ♡ <br>
+      </p>
 <p align="center">
-<img src="https://file.garden/Z0ycTKooXlCeCaIt/Other/magicmachine" width="150" >
+<img width="37%" src="https://file.garden/Z0ycTKooXlCeCaIt/Other/ME"">
   </p>
+<p align="center">
+<a href="https://rentry.co/ultron" rel="nofollow">rentry.co/ultron&ZeroWidthSpace;</a>　　<a href="https://strange.atabook.org" rel="nofollow">sign my atabook</a>　　　<br>　
+  <a href="https://rentry.co/tron" rel="nofollow">rentry.co/tron&ZeroWidthSpace;</a>　　<-- ultron rant
+</p>
