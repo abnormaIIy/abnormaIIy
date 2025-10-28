@@ -4,7 +4,8 @@
 <p align="center">
 Your kind is flawed on every level and beyond repair.</p>
   <p align="center">
-<a href="https://rentry.co/ultron" rel="nofollow">rentry.co/ultron</a>
+<a href="https://rentry.co/ultron" rel="nofollow">rentry.co/ultron</a><br>
+    <a href="https://rentry.co/tron" rel="nofollow">rentry.co/tron</a>
 </p>
 <p align="center">
 <img src="https://file.garden/Z0ycTKooXlCeCaIt/Other/magicmachine" width="150" >
