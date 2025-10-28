@@ -11,6 +11,3 @@ Your kind is flawed on every level and beyond repair.</p>
 <p align="center">
 <img src="https://file.garden/Z0ycTKooXlCeCaIt/Other/magicmachine" width="150" >
   </p>
-<p align="center">
-dni if you call urself #1 fan of a comic<br>
-   character but don't read any of their comics</p>
