@@ -3,7 +3,7 @@
   <p align="center">
     dia(tron) hehim 22yrs<br>
     strange's husband. ultron kin.<br>
-      ♡ celestial 1 peak, top 5 ultron global ♡ <br>
+      ♡ celestial 1 peak, <a href="https://rivalsmeta.com/characters/ultron/leaderboard" rel="nofollow">top 5 ultron global&ZeroWidthSpace;</a> ♡ <br>
       </p>
 <p align="center">
 <img width="37%" src="https://file.garden/Z0ycTKooXlCeCaIt/Other/ME"">
