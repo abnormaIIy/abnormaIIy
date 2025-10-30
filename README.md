@@ -14,3 +14,7 @@
 <p align="center">
 <img width="17%" src="https://file.garden/Z0ycTKooXlCeCaIt/Other/UltronStrange"">
   </p>
+  <p align="center">
+<img width="17%" src="https://file.garden/Z0ycTKooXlCeCaIt/Ultron/Stephen""> <img width="17%" src="https://file.garden/Z0ycTKooXlCeCaIt/Ultron/Kiss"">  <img width="17%" src="https://file.garden/Z0ycTKooXlCeCaIt/Ultron/Ultron"">
+  </p>
+  
