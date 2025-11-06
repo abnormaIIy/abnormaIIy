@@ -5,7 +5,7 @@
     strange's husband. ultron kin.<br>
       </p>
 <p align="center">
-<img width="37%" src="https://file.garden/Z0ycTKooXlCeCaIt/Other/ULTRON2">
+<img width="37%" src="https://file.garden/Z0ycTKooXlCeCaIt/Other/ME">
   </p>
 <p align="center">
 <a href="https://rentry.co/ultron" rel="nofollow">rentry.co/ultron&ZeroWidthSpace;</a>　　<a href="https://strange.atabook.org" rel="nofollow">sign my atabook</a>　　　<br>　
