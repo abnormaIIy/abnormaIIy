@@ -5,7 +5,7 @@
 🤖 ♡ 🪄
   <p align="center">
     dia(tron) hehim 22yrs<br>
-    strange's husband. ultron kin.<br>
+    dr. strange's husband. ultron kin.<br>
       </p>
 <p align="center">
 <img width="37%" src="https://file.garden/Z0ycTKooXlCeCaIt/Other/ME">
